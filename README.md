@@ -2,6 +2,9 @@
 
 
 -------------------------------------------------------------
+  * [260319为什么很多中国人看不懂世界？从川普战争争论到法老型人格](https://www.asuswebstorage.com/navigate/a/#/s/5D83F5EAE5984F0C85B52D2B9559E291Y)
+  * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/A83BEBF462E1454BA2B59A9AB85E4BC4Y)
+-------------------------------------------------------------
   * [260312战争_文明与秩序：世界合法性的来源](https://www.asuswebstorage.com/navigate/a/#/s/DD6E14795DFC4341AC5F0D23781F483AY)
   * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/64B8004C352547FEBA64844144BEFAECY)
 -------------------------------------------------------------
