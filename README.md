@@ -2,6 +2,9 @@
 
 
 -------------------------------------------------------------
+  * [260326战争与和平一个跨学科的讨论_当世界无法避免冲突人类如何避免坠入野蛮](https://www.asuswebstorage.com/navigate/a/#/s/377FEBD390F54BFC8264A1FDCB771648Y)
+  * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/2DD156FB55494F78BD6C7446CB3CA8E2Y)
+-------------------------------------------------------------
   * [260319为什么很多中国人看不懂世界？从川普战争争论到法老型人格](https://www.asuswebstorage.com/navigate/a/#/s/5D83F5EAE5984F0C85B52D2B9559E291Y)
   * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/A83BEBF462E1454BA2B59A9AB85E4BC4Y)
 -------------------------------------------------------------
