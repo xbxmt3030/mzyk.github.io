@@ -2,6 +2,9 @@
 
 
 -------------------------------------------------------------
+  * [260430子弹之后，爱恨之间：我们究竟该如何看川普？](https://www.asuswebstorage.com/navigate/a/#/s/A6BB45E8EAA0487B8545CBADC6F555BAY)
+  * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/BEA64A2223334405BBD2F00205675D39Y)
+-------------------------------------------------------------
   * [260423自发秩序及其根基](https://www.asuswebstorage.com/navigate/a/#/s/952CD93FEC53429683CD668027A9E61AY)
   * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/E176ED0FD0334CB6A378425233677D9AY)
 -------------------------------------------------------------
