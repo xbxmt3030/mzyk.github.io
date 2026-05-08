@@ -2,6 +2,9 @@
 
 
 -------------------------------------------------------------
+  * [260507秩序的函数：从边界到文明_从30万到300万引发的思考](https://www.asuswebstorage.com/navigate/a/#/s/8DD67DB9E8AA4525B5335D6562CEFC1AY)
+  * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/B67BC8B8B33E4D7395CB0ED2A0E319D2Y)
+-------------------------------------------------------------
   * [260430子弹之后，爱恨之间：我们究竟该如何看川普？](https://www.asuswebstorage.com/navigate/a/#/s/A6BB45E8EAA0487B8545CBADC6F555BAY)
   * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/BEA64A2223334405BBD2F00205675D39Y)
 -------------------------------------------------------------
