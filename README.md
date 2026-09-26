@@ -1,8 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
 -------------------------------------------------------------
-  * [260925-刘军宁：中秋评论之从十诫看中美峰会](https://www.asuswebstorage.com/navigate/a/#/s/568C530028DD4F98AE6D6FD159F118BBY)
-  * [260925-马方：2026中秋节谈商业、人生与信仰](https://www.asuswebstorage.com/navigate/a/#/s/90017F2524634F1C9694DFB30A195B9CY)
+  * [260925-刘军宁：中秋评论之从十诫看中美峰会](https://www.asuswebstorage.com/navigate/a/#/s/D1ECA1560DFD41CF8115BA3484DC1799Y)
+  * [260925-马方：2026中秋节谈商业、人生与信仰](https://www.asuswebstorage.com/navigate/a/#/s/EDF00B50EFB5430488438B397A101E64Y)
 -------------------------------------------------------------
   * [260924-赵晓：中美峰会观察：双方关系中的交易、竞争与长期秩序](https://www.asuswebstorage.com/navigate/a/#/s/83B361DBEB4B4C908E61985EF8735523Y)
   * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/90B2CF6D804E4EF6924D0106DCD71F0CY)
