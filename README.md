@@ -1,7 +1,9 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
 
-
+-------------------------------------------------------------
+  * [261022-赵晓：长期并没有死——从2026年诺奖看文明的竞争](https://www.asuswebstorage.com/navigate/a/#/s/45155722A31642E0A243EEC962206D53Y)
+  * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/31E9227ACA02428FB4EC5ACDBDDFF907Y)
 -------------------------------------------------------------
   * [261015-赵晓：“赛先生”的另一面——五四没讲完的那一课](https://www.asuswebstorage.com/navigate/a/#/s/BFB59FA1B8184E8D8326610CA0AA0ACCY)
   * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/01A8FD161C1341FD938CB084BF88F14BY)
