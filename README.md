@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
-
+-------------------------------------------------------------
+  * [261029-赵晓：文明持久战：时间究竟站在谁一边？](https://www.asuswebstorage.com/navigate/a/#/s/81F925F70C014CF0992878AC177684F0Y)
+  * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/A87CC00C3AA64D6688A3C0CBCEB32DCBY)
 -------------------------------------------------------------
   * [261022-赵晓：长期并没有死——从2026年诺奖看文明的竞争](https://www.asuswebstorage.com/navigate/a/#/s/45155722A31642E0A243EEC962206D53Y)
   * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/31E9227ACA02428FB4EC5ACDBDDFF907Y)
