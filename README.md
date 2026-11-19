@@ -4,7 +4,9 @@
 
 
 
-
+-------------------------------------------------------------
+  * [261119-赵晓：一个帝国为什么脆？——从黄仁勋风波学看屏幕、看未来](https://www.asuswebstorage.com/navigate/a/#/s/41F45FDD51874B15AB653D86FA87F70EY)
+  * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/C6406B586E574B03B5112825ACB7CA8EY)
 -------------------------------------------------------------
   * [261112-赵晓：未来有多长，今天有多强-从海豹突击队看自由人的战斗与生命经济学](https://www.asuswebstorage.com/navigate/a/#/s/4864EB630C4F442C877EEAA199BE2FD5Y)
   * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/21009BCFF4F742028EA8FA6579358A52Y)
