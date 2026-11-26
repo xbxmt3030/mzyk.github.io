@@ -2,8 +2,9 @@
 
 
 
-
-
+-------------------------------------------------------------
+  * [261126-赵晓：AI狂潮与美股震荡：财富大变局中如何爱财有道？](https://www.asuswebstorage.com/navigate/a/#/s/B2C7D813455C4231AA94A61F115F41F1Y)
+  * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/7097074ED59D47B185A1380FADD45FE4Y)
 -------------------------------------------------------------
   * [261119-赵晓：一个帝国为什么脆？——从黄仁勋风波学看屏幕、看未来](https://www.asuswebstorage.com/navigate/a/#/s/41F45FDD51874B15AB653D86FA87F70EY)
   * [互动问答](https://www.asuswebstorage.com/navigate/a/#/s/C6406B586E574B03B5112825ACB7CA8EY)
